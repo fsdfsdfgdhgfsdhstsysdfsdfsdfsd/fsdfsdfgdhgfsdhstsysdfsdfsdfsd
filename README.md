@@ -5,11 +5,23 @@
 
 <h5 align="center">
 
-<img src="https://komarev.com/ghpvc/?username=chuckknasty&color=9e856a&label=⠀⠀⠀⠀ㆍㅅㆍ⠀⠀⠀⠀" alt="Centered Image"> <br></p>
- 
-<img width="446" height="auto" alt="Adobe Express - file (1)" src="https://github.com/user-attachments/assets/ed88e938-56f1-4ca5-a15c-47143e3262f4" />
-   
-<a href="https://bone.atabook.org/"><img src="https://file.garden/aPthuU9PkXWKuLKJ/Screenshot%202026-05-22%20182209(1).png" width="75" height="auto"/></a> ⠀<a href="https://rentry.co/feu/"><img src="https://file.garden/aPthuU9PkXWKuLKJ/Untitled5024_20260522183619.png" width="75" height="auto"/></a>
+
+<img align="left" width="500" height="auto" alt="-" src="https://file.garden/aPthuU9PkXWKuLKJ/ezgif.com-animated-gif-maker.gif"/>
+
+<table>
+  <tr>
+    <th>
+      <img src="https://komarev.com/ghpvc/?username=beautifulderap&color=C6B6C3&label=　hands　" alt="Centered Image"> <br></p>
+      <img width="25" height="auto" alt="-" src="https://file.garden/aPthuU9PkXWKuLKJ/1491290333575778374.gif"<sub>ꭤl</sub>i𝒸ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ<br> ᵒ<sup>u</sup>⠀⠀⠀⠀⠀<br>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+      $\color{#9991BC}{\textsf{ᨳ( ̷ཀ˕◟̥̥)ഒ}}$ <br>
+       aaa <br>
+       aaaa <br>
+       aaaaa <br>
+</th>
+</tr>
+</table>
+
+
 
 </h5>
  
