@@ -20,9 +20,8 @@
       $\color{#9991BC}{\textsf{ᨳ( ̷ཀ˕◟̥̥)ഒ}}$ 𓈒ꚕ<sub>e</sub> 𓏫𓈒ֺּׅ﹟<sup>𝓲ιꭑ</sup>ᧁׁ<sub>𝓯</sub> 
     <br>
      <img width="25" height="auto" alt="image" src="https://file.garden/aPthuU9PkXWKuLKJ/1466033101451952200.gif" /> <sub>⁰⁵ ¹⁹ ²⁶  ͜͝ ͜͝ ̣̣̥♡゙| ̈ <img width="25" height="auto" alt="image" src="https://file.garden/aPthuU9PkXWKuLKJ/1466033168472739850.gif"</sub><br>
+     <sub>easy 2 read version in rentry ♡</sub> <br>
      <br>
-
-
        
 </th>
 </tr>
