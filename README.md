@@ -12,7 +12,7 @@
   <tr>
     <th>
       <img src="https://komarev.com/ghpvc/?username=beautifulderap&color=C6B6C3&label=　hands　" alt="Centered Image"> <br>
-      <img width="25" height="auto" alt="-" src="https://file.garden/aPthuU9PkXWKuLKJ/1491290333575778374.gif"<sub>ꭤl</sub>i𝒸ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ ᵒ<sup>u</sup> tsssssssssssssssssssssskkkkkkkk<br>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+      <img width="25" height="auto" alt="-" src="https://file.garden/aPthuU9PkXWKuLKJ/1491290333575778374.gif"  <sup>𓏫♡</sup><sub>ꭤl</sub>i𝒸ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ ᵒ<sup>u</sup> tsssssssssssssssssssssskkkkkkkk<br>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
       $\color{#9991BC}{\textsf{ᨳ( ̷ཀ˕◟̥̥)ഒ}}$ <br>
        aaa <br>
        aaaa <br>
